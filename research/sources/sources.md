@@ -39,9 +39,8 @@ Strong emphasis on brand-led growth and narrative-driven marketing. His content 
 
 ---
 
-### 4. Amanda Natividad  
-Link: https://www.linkedin.com/in/amandanat/ 
-Platform: LinkedIn  
+Link: https://www.linkedin.com/in/amandanat/
+Platform: LinkedIn
 Recent content reviewed: 2 days ago  
 Focus: Content marketing, zero-click content  
 
