@@ -38,9 +38,9 @@ Annotation:
 Strong emphasis on brand-led growth and narrative-driven marketing. His content highlights the importance of positioning and emotional resonance in B2B.
 
 ---
-
-Link: https://www.linkedin.com/in/amandanat/
-Platform: LinkedIn
+### 4. Amanda Natividad
+Link: https://www.linkedin.com/in/amandanat/  
+Platform: LinkedIn  
 Recent content reviewed: 2 days ago  
 Focus: Content marketing, zero-click content  
 
